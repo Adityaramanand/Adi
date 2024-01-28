@@ -14,7 +14,7 @@
   <br>
   👩‍🎓 I'm studying BE Electronics and communication engineering at KCT, INDIA.
   <br>
-  ⚡Fun Fact: Web isn't the only thing I do.
+  ⚡Fun Fact: i am adventure.
   <br>
   🌐 Socials:
 </p>
